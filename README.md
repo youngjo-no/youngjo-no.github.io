@@ -1,1 +1,0 @@
-# youngjo-no.github.io
